@@ -1,6 +1,4 @@
-"artist"
-
-"student"
+![czwkega](https://raw.githubusercontent.com/HappenedByProxy/HappenedByProxy/main/czwkegaFly.png)
 
 <!---
 HappenedByProxy/HappenedByProxy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
