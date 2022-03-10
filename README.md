@@ -3,6 +3,13 @@
 cybersecurity ¦ glitch & 3d artist
 
 <!---
-HappenedByProxy/HappenedByProxy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+
+I HAVE TO [LIE](https://www.youtube.com/watch?v=svwJTnZOaco)
+- [x] I͟N͟ T͟H͟E͟ M͟I͟D͟D͟L͟E͟ O͟F͟ T͟H͟E͟ F͟L͟O͟O͟R͟
+- [ ] COMPLETELY MOTIONLESS
+- NOT DARING TO BREATHe
+
+¦I AM LIKE THIS WHEN THE 
+*[P͟O͟L͟I͟C͟E͟](https://www.youtube.com/watch?v=1uYWYWPc9HU)* FINALLY FIND ME
+
 --->
